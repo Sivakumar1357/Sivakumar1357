@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @malumatta sivakumar
-- 👀 I’m interested in software catching any type of snakes using any methods
+- 👀 I’m interested in  catching any type of snakes using any methods
 - 🌱 I’m currently learning BE CSE in Panimalar Engineering College
 - 💞️ I’m looking to collaborate on more and more devolopers who are ell trained and experienced devolpers
 - 📫 I can be reachable for anytime between 4.00 am to 12.00 pm at any day through my mail pecsivakumarcsej@gmil.com & instagram by id xiva_15_
